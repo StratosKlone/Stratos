@@ -1,8 +1,0 @@
-# Stratos
-Hello
-
-
-adasdasdasdasdasdasdasdasd
-dasdasdasdasdasdasdasdasdasd
-asasdasdasdasddasdasdasdasd
-
